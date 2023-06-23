@@ -68,9 +68,9 @@ var styles2 = [
     , 'font-size: 32px'
 ].join(';');
 
-console.log('\n\n%c SAVE THE DATE: 06th Jun, 2022!', styles);
+console.log('\n\n%c SAVE THE DATE: 13th Dec, 2023!', styles);
 
-console.log('%cYour presence is requested!%c\n\nRegards: Priya and Ankit', styles1, styles2);
+console.log('%cYour presence is requested!%c\n\nRegards: Shashank and Megha', styles1, styles2);
 
 console.log(
     `%cShaadi me zaroor aana!\n\n`,
