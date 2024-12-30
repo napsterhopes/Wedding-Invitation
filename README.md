@@ -74,3 +74,7 @@ https://www.instagram.com/reel/C8fAxmeKTn8/?igsh=Mnh6anA3c2hhaXI4
 • Groom with Groomsmer
 
 ## JoinMyWedding.com
+
+### Buying Gold
+- https://www.instagram.com/reel/C7mJ8pnvQab/?igsh=MTZuaGo1dDgzeGlvZQ%3D%3D
+- https://www.instagram.com/reel/DBby3jbITK5/?igsh=YTJoMXZ5NXdoZDM=
