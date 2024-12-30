@@ -14,28 +14,36 @@ https://www.instagram.com/reel/C8fAxmeKTn8/?igsh=Mnh6anA3c2hhaXI4
 
 ## Photoshoot
 
-Jewellery, footwear, bangles
+> Jewellery, footwear, bangles
 • Applying Makeup
 • Bride with Parents
 • Bride with Bridesmaids
 • Groom getting dressed or adjusting
-Sherwani
+
+> Sherwani
+
 • Shoes, watch & other accessories
 • Groom with Parents
 • Groom with Groomsmen
 • Leaving for ceremony
-BRIDE
+
+> BRIDE
+
 • Bride Alone
 • Bride with Parents
 • Bride with Siblings
 • Bride with Grandparents
 • Bride with Bridesmaids
-WEDDING CEREMONY
+
+> WEDDING CEREMONY
+
 • Groom entry and his Barat
 • Bridal entry (emotional moments)
 • Grooms Emotions while bride walks
 • Close-ups of rituals like Varmala &
-Mangalsutra
+
+> Mangalsutra
+
 • Exchange of Vows
 • Saat Phere around the sacred fire
 • Blessings from elders
@@ -43,7 +51,7 @@ Mangalsutra
 • Bride's emotional momets with her parents
 • Bride sitting in car during Bidai
 
-TOGETHER
+> TOGETHER
 
 • First look
 • Bride & Groom alone
@@ -57,9 +65,13 @@ TOGETHER
 • Groom's Full Family
 • Both Full Families
 
-GROOM
+> GROOM
 • Groom Alone
 • Groom with Parents
 • Groom with Siblings
 • Groom with Grandparer
 • Groom with Groomsmer
+
+## JoinMyWedding.com
+
+
