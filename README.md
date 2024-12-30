@@ -15,6 +15,7 @@ https://www.instagram.com/reel/C8fAxmeKTn8/?igsh=Mnh6anA3c2hhaXI4
 ## Photoshoot
 
 > Jewellery, footwear, bangles
+
 • Applying Makeup
 • Bride with Parents
 • Bride with Bridesmaids
@@ -73,5 +74,3 @@ https://www.instagram.com/reel/C8fAxmeKTn8/?igsh=Mnh6anA3c2hhaXI4
 • Groom with Groomsmer
 
 ## JoinMyWedding.com
-
-
