@@ -86,3 +86,10 @@ https://www.instagram.com/reel/C8fAxmeKTn8/?igsh=Mnh6anA3c2hhaXI4
 - Customize Hashtag stickers - Customizing hashtag stickers for a wedding can add a fun and interactive touch for guests to use when sharing moments on social media.
 - Couple Story telling newspaper - A couple storytelling newspaper is a creative way to share the journey of a couple's relationship in the form of a personalized newspaper.
 - Passport Theme Wedding Itinerary - Is a creative way to present the schedule and details of wedding events in the style of a passport.
+
+### Wedding Hall + Catering
+A wedding in a standalone banquet hall without catering services falls under the category of “Renting of immovable property for commercial purposes” under HSN Code 9972 and attracts 18% GST. This is because renting a banquet hall is considered a service under GST law, and since it is not a residential property, the applicable tax rate is 18%.
+
+A wedding in a standalone banquet hall with catering services taxed at 5% GST would fall under the category of “Outdoor Catering Services” under HSN Code 9963.
+
+Website: gst.gov.in
