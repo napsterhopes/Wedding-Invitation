@@ -78,3 +78,11 @@ https://www.instagram.com/reel/C8fAxmeKTn8/?igsh=Mnh6anA3c2hhaXI4
 ### Buying Gold
 - https://www.instagram.com/reel/C7mJ8pnvQab/?igsh=MTZuaGo1dDgzeGlvZQ%3D%3D
 - https://www.instagram.com/reel/DBby3jbITK5/?igsh=YTJoMXZ5NXdoZDM=
+
+### [Wedding Experience](https://www.instagram.com/reel/DEkZJTvzjjw/?igsh=MWx5NGoxM2J4bzE5)
+
+- Guest message board - Guests write messages, wishes, or congratulations on a large board as part of the event decor or an interactive activity and create a beautiful painting for couple.
+- AR Invitation - An AR (Augmented Reality) Invitation is a type of interactive invitation that uses augmented reality technology to enhance the guest's experience.
+- Customize Hashtag stickers - Customizing hashtag stickers for a wedding can add a fun and interactive touch for guests to use when sharing moments on social media.
+- Couple Story telling newspaper - A couple storytelling newspaper is a creative way to share the journey of a couple's relationship in the form of a personalized newspaper.
+- Passport Theme Wedding Itinerary - Is a creative way to present the schedule and details of wedding events in the style of a passport.
